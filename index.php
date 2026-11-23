@@ -1,1 +1,1 @@
-<h1>PSHS Shop</h1>
+<h1>PSHS Shop & Co.</h1>
